@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ediizz
+- 👀 I am interested in software as a hobby
+- 🌱 I design cheats for games like cs go, valorant lol
+- 📫 How to reach me  discord:𝐄𝐝𝐢𝐳#0006
+- I am not responsible for anything that might happen to you.
